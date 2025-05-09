@@ -9,4 +9,3 @@ My ultimate goal is to build a large, engaged community around the values of cre
 Through this initiative, I hope to not only express my ideas but also to earn a living by doing what I truly love. I believe that with dedication, hard work, and a clear vision, I can turn this dream into a reality. I am committed to learning, growing, and surrounding myself with people who believe in building something greater than themselves.</p>
 
 
-<h2></h2>
